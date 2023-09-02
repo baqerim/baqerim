@@ -1,3 +1,4 @@
+![0x0-hic-bilinmeyen-teknolojik-bilgiler-1520712467595](https://github.com/baqerim/baqerim/assets/54258416/23b66ea9-e54e-4dcf-a32c-491c19a9bd1a)
 <p align="left"> <a href="https://twitter.com/camsayfam" target="blank"><img src="https://img.shields.io/twitter/follow/camsayfam?logo=twitter&style=for-the-badge" alt="camsayfam" /></a> </p>
 
 - 📫 How to reach me **baqer4949@gmail.com**
